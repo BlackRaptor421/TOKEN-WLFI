@@ -16,6 +16,6 @@ Sometimes I wonder: is it worth getting into WLFI at all? My answer for now is m
 
 I feel the temptation to buy a small share, just to be part of this story. But I wouldn’t commit heavily yet. For me, WLFI right now isn’t a safe-sleep investment — it’s more like a ticket to a roller coaster ride.
 
-And still, watching the chart, I can’t help but think: just a little more upward movement, and the token could break through its all-time high (ATH).
+And still, watching the chart, I can’t help but think: just a little more upward movement, and the token could break through its all-time high (ATH)./
 
 
