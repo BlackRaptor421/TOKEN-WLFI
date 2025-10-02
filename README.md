@@ -15,7 +15,7 @@ And of course, I can’t ignore the politics. Yes, the Trump name brings attenti
 Sometimes I wonder: is it worth getting into WLFI at all? My answer for now is mixed. In the short term, it’s purely a play on volatility — news, listings, hype can send the price swinging fast. In the mid-term, it depends on how successfully the ecosystem starts generating stable revenues. And in the long term, the decisive question is one: can the project survive the pressure of both the market and politics?
 
 I feel the temptation to buy a small share, just to be part of this story. But I wouldn’t commit heavily yet. For me, WLFI right now isn’t a safe-sleep investment — it’s more like a ticket to a roller coaster ride.
-
-And still, watching the chart, I can’t help but think: just a little more upward movement, and the token could break through its all-time high (ATH)./225555
+6
+And still, watching the chart, I can’t help but think: just a little more upward movement, and the token could break through its all-time high (ATH)./2255556
 
 
